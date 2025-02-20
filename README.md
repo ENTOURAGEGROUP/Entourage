@@ -72,8 +72,8 @@ Entourage Group emphasizes long-term success and compliance in all its efforts. 
 For inquiries or to explore partnership opportunities, Entourage Group can be reached via:
 
 - **Phone**: (754) 465-9480
-- **Email**: info@entouragegroup.com
-- **Website**: [Entourage Group](#)
+- **Email**: adam@entourage-group.com
+- **Website**: [Entourage Group](https://entouragegroup.com)
 
 ---
 
