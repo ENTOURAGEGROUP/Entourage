@@ -63,8 +63,8 @@ Entourage Group differentiates itself in the industry through its AI-driven appr
 ### **Performance Metrics**
 Entourage Group emphasizes long-term success and compliance in all its efforts. Notable performance indicators include:
 
-- **$0M Spent on Compliance**: The company ensures compliance without incurring unnecessary expenses.
-- **0+ Years in Investor Relations**: Demonstrating a strong track record and industry experience.
+- **$1.25M Spent on Compliance**: The company ensures compliance without incurring unnecessary expenses.
+- **17+ Years in Investor Relations**: Demonstrating a strong track record and industry experience.
 
 ---
 
